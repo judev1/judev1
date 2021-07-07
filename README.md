@@ -1,3 +1,3 @@
-baby turtle
+![turdle](https://media.istockphoto.com/photos/computer-on-fire-picture-id1085051682)
 
-![turdle](https://www.pixelstalk.net/wp-content/uploads/2016/05/Free-Baby-Turtle-Wallpaper-Download.jpg)
+me irl
